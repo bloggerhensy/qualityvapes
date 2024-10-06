@@ -1,1 +1,1 @@
-# qualityvapes
+[Quality Vapes](https://qualityvapes.ca/) in Canada featuring top quality Premium E-liquids; we have the products you need and expert staff to help you make the switch from Smoking to Vaping! E-Cigarettes, E-Liquid, Starter Kits, Vaporizers for Cannabis, Disposable, Pods & more.
